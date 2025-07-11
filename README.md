@@ -4,11 +4,12 @@
 
 ---
 
-## ▶ Preview: Coming soon...  
-*(This track has not been published on YouTube yet)*
+📺 Preview on YouTube Shorts:  
+👉 [Watch Now](https://youtube.com/shorts/i-i_Vp_BAeQ?feature=share) – Published on July 11, 2025 
 
-## 📂 Download Full Track + License
-[Google Drive Link] ← Replace this with your real drive link
+❗ Full track is available upon request only.  
+For licensing or commercial use, please contact the creator directly.  
+The download link is restricted and not included here for public access.
 
 ---
 
