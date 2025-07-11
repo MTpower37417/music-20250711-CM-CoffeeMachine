@@ -4,9 +4,8 @@
 
 ---
 
-## ▶ Preview
-Watch the short version on YouTube:  
-[https://www.youtube.com/shorts/Q9A7xyzm0lk](https://www.youtube.com/shorts/Q9A7xyzm0lk)
+## ▶ Preview: Coming soon...  
+*(This track has not been published on YouTube yet)*
 
 ## 📂 Download Full Track + License
 [Google Drive Link] ← Replace this with your real drive link
